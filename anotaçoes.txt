@@ -1,2 +1,7 @@
  links uteis :
+
+  site para ver compatibilidade dos navegadores com html    https://www.w3schools.com/tags/ref_html_browsersupport.asp 
+
+
+
  observaçoes da aula 
