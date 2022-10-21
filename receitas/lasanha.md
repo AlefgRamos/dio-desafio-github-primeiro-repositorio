@@ -1,4 +1,4 @@
-#    **Lasanha ** :man_cook:
+#    Lasanha  :man_cook:
 
 
 
