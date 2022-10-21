@@ -33,7 +33,7 @@
 
 ### MOLHO À BOLONHESA
 
-**2 **Refogue o alho, a cebola, a carne moída, o molho de tomate, deixe cozinhar por 3 minutos e reserve.
+**2** Refogue o alho, a cebola, a carne moída, o molho de tomate, deixe cozinhar por 3 minutos e reserve.
 
 ### MOLHO BRANCO
 
